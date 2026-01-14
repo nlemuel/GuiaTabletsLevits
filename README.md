@@ -9,7 +9,7 @@
 
 - 🧠 RAM: 4GB (o mínimo do mercado)
 - 💾 Memória: 64GB (é possível comprar cartão de memória e aumentar até 1TB)
-- 📱 Tela: 8,7 polegadas com 60Hz
+- 📱 Tela: 8,7 polegadas TFT com 60Hz
 - ⚙️ Processador: Paia, mas entrega
 - 🔋 Bateria: 5.100 mAh (não sei quanto de bateria tem o seu celular, mas seria uma boa comparação pra vc ter ideia do desempenho)
 
@@ -29,7 +29,7 @@ Neste tablet eles fazem uma boa divisão de processador e memória RAM. Opções
 
 - 🧠 RAM: 4GB (mesmo do outro)
 - 💾 Memória: 64GB (é possível comprar cartão de memória e aumentar até 1TB)
-- 📱 Tela: 11 polegadas com 90Hz
+- 📱 Tela: 11 polegadas TFT com 90Hz
 - ⚙️ Processador: Bem melhor que o último
 - 🔋 Bateria: 7.040 mAh
 
