@@ -27,7 +27,7 @@ A Samsung sabe entregar bons produtos e o Jin do BTS faz parte da família do CE
   <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZTIwZDN2enlvYzBqYXJ6ZTFobHpyenZidGpoYWhxMGp6ZTN3dWtqcyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/scaNRvFl9OoxM8OuSq/giphy.gif" width="320" />
 </p>
 
-Neste tablet eles fazem uma boa divisão de processador e memória RAM. Opções baratinhas com um bom processador e processador péssimo (ou ao contrário) podem travar durante o uso, diferente dessa opção que equilibra as coisas justamente para não travar enquanto vc estuda. Não adianta ter uma alta memória RAM e um processador horrível. 
+Neste tablet eles fazem uma boa divisão de processador e memória RAM. Opções baratinhas com uma boa memória RAM e um péssimo processador (ou ao contrário) podem travar durante o uso, diferente dessa opção que equilibra as coisas justamente para não travar enquanto vc estuda. Não adianta ter uma alta memória RAM e um processador horrível. 
 
 ➡️ **[Clique para acessar a loja do Charmander](https://www.amazon.com.br/TABLET-GALAXY-TAB-64GB-GRAFITE/dp/B0CNQ7C4LZ?__mk_pt_BR=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=201UJMRG472HM&dib=eyJ2IjoiMSJ9.RUUPMopKl4VWtrVOS79vHYaopXc5ie9nnAlB9F241rNk9n_kJQLhKWC6rbUIFrVMwAszRP_82pDFZHpM_5_rxicuoE1V5fkBnF_Whec6iEhvrL0Li0LCLaqJBD9ljNowCt-FMdYcGsZPuzyypf1FIS6O9qONHnoWCFTeW9_STkLjXyOgZP8wHIWzmfwPjGarymQwLBPux3Vp_rHZ4hwbkh0yXF8JZ6-u9zcDxGXwoJGioPvhqnYh3ZCA6C7AbNdqFnMYVev5nBr-I70_kWRNE_Kxzj787TXt4lOd4vD2HxQ.YG4I2xmoTeKhvCgLYLBIsqfDGbjf8YUx62RALyzUbx4&dib_tag=se&keywords=Samsung+A9&qid=1764633227&sprefix=samsung+a9,aps,392&sr=8-6&ufe=app_do:amzn1.fos.95de73c3-5dda-43a7-bd1f-63af03b14751&linkCode=sl1&tag=toptech04-20&linkId=cb833bf38aeb317d38988aa47c953b1c&language=pt_BR&ref_=as_li_ss_tl)**
 
